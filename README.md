@@ -1,0 +1,1 @@
+# Rench-0: I have a great idea, wanting to create a digital pet that you can raise it by feeding it, paly with it and it grows in digital world. Then the pet will become a kind of personal assistant to his Master. The pet will must have AI function. I would need those interested to contact me and we work together to create this App. 
